@@ -4,5 +4,5 @@
 •Free
 •No key needed
 𝗦𝘁𝗲𝗽𝘀: Just open roblox and the mod menu
-then click inject and search from the thousands of scripts on the client
+then click inject and search from the thousands of scripts on the client,
 finally click execute once you have injected and put the scripts
